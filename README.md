@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JumpyDumpty
-- 👀 I’m interested in 2D guys/girls
+- 👀 I’m into 2D guys/girls
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on creative projects
 - 📫 How to reach me ...
